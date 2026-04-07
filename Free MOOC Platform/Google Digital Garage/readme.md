@@ -1,0 +1,1 @@
+https://www.reddit.com/answers/d0421f13-22cb-45d9-8af8-4168ca346f25/?q=Google+Digital+Garage+certificates&source=SERP&upstreamCID=769d4754-a7da-4258-bef8-94e39098afdf&upstreamIID=a15aa36c-46d6-4d66-8bbb-19177f4e8ca4&upstreamQ=Google+Digital+Garage+certificates&upstreamQID=56ec5384-739d-4d42-83d7-4892d6af8c86
